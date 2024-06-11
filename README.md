@@ -3,3 +3,5 @@
 *but like...*\
 **CHECK OUT MY [YOUTUBE](https://www.youtube.com/@Zolova/videos) AND [NEWGROUNDS!!!](https://zolovamusic.newgrounds.com)**
 
+\\
+^^[actual github account](https://github.com/Zolova)^^
