@@ -1,2 +1,5 @@
-## no discord yet 😔
-***BUT CHECK OUT MY [YOUTUBE](https://www.youtube.com/@Zolova/videos) AND [NEWGROUNDS!!!](https://zolovamusic.newgrounds.com)
+# hey!
+## this page doesn't exist yet, and is currently being worked on :D
+*but like...*
+**CHECK OUT MY [YOUTUBE](https://www.youtube.com/@Zolova/videos) AND [NEWGROUNDS!!!](https://zolovamusic.newgrounds.com)**
+
